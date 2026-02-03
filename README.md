@@ -6,28 +6,16 @@
   ▌│█║▌║▌║█ █ █ ▌│. 
 ㅤㅤㅤㅤ▌│█║▌║▌║▌│█║█████.
   <p align="center">
-  L zdqwhg wr eh khuh
-    <p align="center">
-L zdqwhg wr vwdb khuh
-      <p align="center">
-L oryh brx wr ghdwk exw L zrq'w pdnh pb judyh khuh
-        <p align="center">
-L zdqwhg wr eh khuh
-          <p align="center">
-L zdqwhg wr vwdb khuh
-            <p align="center">
-L oryh brx wr ghdwk exw L zrq'w pdnh pb judyh khuh
-              <p align="center">
-Zkhuh lv wkh dqjhov L nqhz lq wkh Elooh?
-                <p align="center">
+Zkhuh lv wkh dqjhov L nqhz lq wkh Eleoh?
+     <p align="center">
 L khdug, L fdq'w vhh lw, grq'w sudb iru vxuylydo
-                  <p align="center">
-L nqrz
+        <p align="center">
+          L nqrz
+           <p align="center">
+Wkdw wkhu'hv pruh
+              <p align="center">
+L fdoo rq wkh Orug, kh grhsvq'w slfn xs wkh skrqh
+                 <p align="center">
+Li brx vwloo kdyh pb qxpehu, L krsh brx uhphpehu
                     <p align="center">
-Wkdw wkhuh'v pruh
-                      <p align="center">
-L fdoo rq wkh Orug, kh grhvq'w slfn xs wkh skrqh
-                        <p align="center">
-Li brx vwloo kdyh pb qxpehu, L krsh brx uhphephu
-                          <p align="center">
-Jrrgebh, L'p jrqh
+Jrrgeb, L'p jrqh
