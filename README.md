@@ -24,4 +24,4 @@ Jrrgeb, L'p jrqh
                       
                       
                       
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![2f32056d](https://github.com/user-attachments/assets/54f036fa-9793-41ed-ade9-26a21f01f01f)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![2f32056d](https://github.com/user-attachments/assets/54f036fa-9793-41ed-ade9-26a21f01f01f)
